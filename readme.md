@@ -1,5 +1,4 @@
 # Sara Moss
-![Image of Family](https://drive.google.com/file/d/1HKHANvv-j7544b-HRsS6xx7TmCstA0ej/view?usp=sharing)
 
 ## About Me
 Hi everyone! My name is **Sara** and this is my sixth course in the _Learning Design and Technology_ program here at **NSCU**. Currently, I live in [Carrboro, NC](https://www.townofcarrboro.org/). In December, I started a new job as a virtual teacher to an awesome group of Kindergartners and First Graders at an online charter school in my home-state of Michigan called [Uplift Michigan Online School](https://uplift-mi.org/). Although I enjoyed teaching in traditional brick and mortar schools for seven years, I **love** teaching online. 
